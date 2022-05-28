@@ -1,0 +1,6 @@
+-  Hi, I’m Naseem 
+-  I’m interested in robotics and sytems 
+-  I’m currently learning python and IT kills
+- I’m looking to collaborate on Mods for games , open source projects anything that well help gain experience.\
+-  How to reach me 
+-://www.linkedin.com/in/naseem-bevard/
